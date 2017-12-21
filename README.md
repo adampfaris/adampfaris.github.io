@@ -1,1 +1,0 @@
-# adampfaris.github.io
